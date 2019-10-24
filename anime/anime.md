@@ -44,3 +44,4 @@ Por favor agrega tus canciones favoritas a esta lista, Anime.
 30. [The Day - Porno Graffitti](https://www.youtube.com/watch?v=2SVZ_2z79rQ)
 31. [Neon Genesis Evangelion - The Evangelion Symphony](https://www.youtube.com/watch?v=nP3LMSAmrfU)
 32. [Crossing Field - LiSA](https://youtu.be/xiz0utrFdHU)
+33. [Guren no Yumiya - Linked Horizon] (https://www.youtube.com/watch?v=Pn7dCgtwX2c)
